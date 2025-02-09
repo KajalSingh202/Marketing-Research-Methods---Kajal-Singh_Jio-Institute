@@ -1,0 +1,3 @@
+MarketingResearchMethods-Kajal_Singh_25PGDM0047-Jio-Institute
+
+MRM assignment
